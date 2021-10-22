@@ -1,1 +1,0 @@
-# sanjinprelic.github.io
